@@ -10,6 +10,6 @@ Meu novo é Gabrielly Cugik
 
   00001135639929sp@al.educacao.sp.gov.br
   
- - instagram: gabixsn_
+@gabixsn_
 
 ![](  https://media1.tenor.com/m/SCa_NReG5iEAAAAC/thumbs-up-baby.gif)
